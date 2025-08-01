@@ -1,2 +1,2 @@
-# birijela.com
+# berijela.com
 site utra top sobre birijela 
